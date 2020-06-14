@@ -1,0 +1,2 @@
+# wiedza
+strona na aplikacje
